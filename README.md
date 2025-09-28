@@ -24,9 +24,11 @@ I’m a 34 year old Black lady from New Orleans. I’m all about breaking the �
 
 ## 🌐 Find Me
 
+- Website [Well Walt Studios] (https://www.wellwaltstudios.com)
 - Instagram: [@loureeseyana](https://instagram.com/loureeseyana)
 - TikTok: [@loureeseyana](https://tiktok.com/@loureeseyana)
 
 ## 🚀 Projects
 
-TBD – cool stuff coming soon!
+- Aurova [Mobile App Coming Soon....] (https://www.aurovabyaw.com)
+- BlueTree [Mobile App Coming Soon...] 
